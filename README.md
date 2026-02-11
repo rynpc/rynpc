@@ -1,3 +1,3 @@
 
-My ✨ personal ✨ repository!
+My ✨ personal ✨ github profile!
 
